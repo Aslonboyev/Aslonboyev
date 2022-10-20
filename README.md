@@ -1,4 +1,4 @@
-### Hi there, I am Aslonboyev 👋
+### Hi there, I am Temur Aslonboyev 👋
 
 #### I'm a Software Engineer.
 
